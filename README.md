@@ -1,0 +1,2 @@
+# RAISING-HEROES
+In this book, Dr. Augusta shares Word-proven practical steps to bringing out the hidden hero in your children. Learn the real truth about “child heroism”; discover the power of transmission as a parent; understand the deeper essence of fatherhood; realize the force and authority you can add to “praying for your children,” just by taking the path of deep spirituality and character remodeling. Now you have in your hands the tool to help your children fulfill God’s unchanging purpose for their lives. Read it. Take it in. Work it out. YES! You can RAISE HEROES!
